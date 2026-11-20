@@ -1,1 +1,9 @@
 https://qualicarepolyclinic.com/
+https://qualicarepolyclinic.com/service-tooth-coloured-fillings.html
+https://qualicarepolyclinic.com/service-root-canal-treatment.html
+https://qualicarepolyclinic.com/service-cosmetic-aesthetic-dentistry.html
+https://qualicarepolyclinic.com/service-cosmetic-aesthetic-dentistry.html
+https://qualicarepolyclinic.com/service-dental-implants.html
+https://qualicarepolyclinic.com/service-oral-and-maxillofacial-surgery.html
+https://qualicarepolyclinic.com/service-oral-cancer-screening.html
+https://qualicarepolyclinic.com/service-orthodontics-braces-and-aligners.html
